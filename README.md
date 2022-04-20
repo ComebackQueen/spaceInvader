@@ -75,14 +75,14 @@
 
 ![160088397-ad22de5f-ddc0-4933-9bdf-07a0cc3a1972](https://user-images.githubusercontent.com/87848564/160090843-84fbfe32-1b8a-4d27-9ab4-7b41a0119f9b.jpeg)
 
-![160088401-a0081fd8-d999-45d2-af95-72f029c7676d](https://user-images.githubusercontent.com/87848564/160090852-73dc5842-a5f6-45c7-8cd1-27e67cbb0221.jpeg)
+![160088406-43b4672f-2180-42f1-83e2-5d070c7b0dba](https://user-images.githubusercontent.com/87848564/160090866-a1413c51-8937-4853-8ae7-e21ec2645e4b.jpeg)
 
 
 
 ### 환경설정
 
-![160088406-43b4672f-2180-42f1-83e2-5d070c7b0dba](https://user-images.githubusercontent.com/87848564/160090866-a1413c51-8937-4853-8ae7-e21ec2645e4b.jpeg)
 
+![160088401-a0081fd8-d999-45d2-af95-72f029c7676d](https://user-images.githubusercontent.com/87848564/160090852-73dc5842-a5f6-45c7-8cd1-27e67cbb0221.jpeg)
 
 
 
